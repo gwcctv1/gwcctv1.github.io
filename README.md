@@ -1,5 +1,5 @@
 # 11月18日→21.7M/S|2025年最新免费节点Clash for IOS订阅链接地址  更新时间 2025-11-18 09:02:49
-所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://gwcctv1.github.io"gw target="_blank">点击跳转</a>
+所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://gwcctv1.github.io"target="_blank">点击跳转</a>
 
 ## clash使用教程：
 

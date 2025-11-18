@@ -1,49 +1,49 @@
 # 11月18日→21.7M/S|2025年最新免费节点Clash for IOS订阅链接地址  更新时间 2025-11-18 09:02:49
-所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://cctv1.github.io" target="_blank">点击跳转</a>
+所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://gwcctv1.github.io"gw target="_blank">点击跳转</a>
 
 ## clash使用教程：
 
-<一个 链接="https://www.freeclashnode.com/client/" 目标="_blank">科学上网详细教程</链接>
+科学上网详细教程
 
 ## 订阅链接：
 
 ### 免费Clash节点订阅链接
 
-- https://cctv1.github.io/uploads/2025/11/0-20251118.yaml
-- https://cctv1.github.io/uploads/2025/11/1-20251118.yaml
-- https://cctv1.github.io/uploads/2025/11/2-20251118.yaml
-- https://cctv1.github.io/uploads/2025/11/3-20251118.yaml
-- https://cctv1.github.io/uploads/2025/11/4-20251118.yaml
+- https://gwcctv1.github.io/uploads/2025/11/0-20251118.yaml
+- https://gwcctv1.github.io/uploads/2025/11/1-20251118.yaml
+- https://gwcctv1.github.io/uploads/2025/11/2-20251118.yaml
+- https://gwcctv1.github.io/uploads/2025/11/3-20251118.yaml
+- https://gwcctv1.github.io/uploads/2025/11/4-20251118.yaml
 
 ### 免费V2ray节点订阅链接
 
-- https://cctv1.github.io/uploads/2025/11/0-20251118.txt
-- https://cctv1.github.io/uploads/2025/11/1-20251118.txt
-- https://cctv1.github.io/uploads/2025/11/2-20251118.txt
-- https://cctv1.github.io/uploads/2025/11/3-20251118.txt
-- https://cctv1.github.io/uploads/2025/11/4-20251118.txt
+- https://gwcctv1.github.io/uploads/2025/11/0-20251118.txt
+-https://gwcctv1.github.io/uploads/2025/11/1-20251118.txt
+- https://gwcctv1.github.io/uploads/2025/11/2-20251118.txt
+-https://gwcctv1.github.io/uploads/2025/11/3-20251118.txt
+-https://gwcctv1.github.io/uploads/2025/11/4-20251118.txt
 
 ### 免费Sing-box节点订阅链接
 
-- https://cctv1.github.io/uploads/2025/11/20251118.json
+-https://gwcctv1.github.io/uploads/2025/11/20251118.json
 
 ## 更多Clash节点订阅 ：
 
 
-### 高速机场推荐1【<a href="https://www.nfsq.us/#/register?code=UTg5SIHV"target="_blank">农夫山泉</a>】 
+### 高速机场推荐1【】 a
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://www.nfsq.us/#/register?code=UTg5SIHV" target="_blank">农夫山泉（点击注册）</a>】
 
 
 
-### 高速机场推荐2【<a href="https://11008866.xyz/#/register?code=6KO4Fpse"target="_blank">星辰VPN</a>】 
+### 高速机场推荐2【】 a
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://11008866.xyz/#/register?code=6KO4Fpse" target="_blank">星辰VPN（点击注册）</a>】
 
 
-### 高速机场推荐3【<a href="https://goudan.site/#/register?code=7WiPAwPs"target="_blank">西游云</a>】 
+### 高速机场推荐3【】 >a</
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://goudan.site/#/register?code=7WiPAwPs" target="_blank">西游云（点击注册）</a>】
